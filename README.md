@@ -1,2 +1,4 @@
 # severe-fps
-New FPS Tweaker, PC Cleaner, Optimizer for everyone!
+Comming soon...
+
+## [Discord Server](https://discord.gg/MKtBtrjkyn)
