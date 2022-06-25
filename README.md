@@ -1,4 +1,4 @@
 # severe-fps
-Comming soon...
+### What is this SEVERE FPS?
 
 ## [Discord Server](https://discord.gg/MKtBtrjkyn)
