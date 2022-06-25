@@ -5,6 +5,6 @@
 <hr>
  
   ## Comming Soon 💖
-  [Join the discord server today!!](https://discord.gg/MKtBtrjkyn)
+  [Join the discord server today!](https://discord.gg/MKtBtrjkyn)
   
 
