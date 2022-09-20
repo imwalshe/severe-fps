@@ -4,7 +4,7 @@
 </div>
 <hr>
  
-  ## Comming Soon 💖
+  ## Beta testing for everyone 💖
   [Join the discord server today!](https://discord.gg/MKtBtrjkyn)
   
 
